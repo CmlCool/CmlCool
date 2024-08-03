@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Come on Lenovo
-- 👀 I’m interested in tech and moddig ...
-- 🌱 I’m currently learning how to learn ...
+- 👀 I’m interested in tech and modding
+- 🌱 I’m currently learning how to learn
 - 📫 How to reach me @comeonlenovo132 on discord
 - 😄 Pronouns: CMLDEV
   
